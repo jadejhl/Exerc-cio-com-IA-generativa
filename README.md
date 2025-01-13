@@ -1,0 +1,1 @@
+# Exerc-cio-com-IA-generativa
